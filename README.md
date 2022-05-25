@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MHJWijfjes
-- 👀 I’m interested in Life Sciences and Society
+- 👀 I’m interested in Life Sciences and Debating Tabulation
 - 🌱 I’m currently studying at the Graduate School of Life Sciences
 - 💞️ I’m looking to collaborate on Open Science Projects
 - 📫 How to reach me: on Facebook
